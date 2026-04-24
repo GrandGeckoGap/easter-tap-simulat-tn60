@@ -1,4 +1,4 @@
-
+Experience easter tap simulator like never before with smart easter tap simulator Scripts, the #1 Script. Includes auto-upgrade and teleport for
 
 
 
